@@ -1,3 +1,3 @@
 ##
 
-![hippo](https://64.media.tumblr.com/bbc584221f7ef1a363f28382c102c7d4/5b450a225aaaf088-79/s500x750/aa98fb57553cea0f8305d1363ebe56481893a893.gif)
+![hippo](https://64.media.tumblr.com/29e2c002fd8486fc7265a7af762f71a8/1a647f3b21876c6f-2c/s250x400/9630af3d0b2f586ef36b34310f18636409c6d8c0.gif)
